@@ -1,6 +1,6 @@
 ### 💻 Servus, ich bin Julian 👋
 
-14 Jahre alt und komme aus Deutschland um genau zu sein aus Bayern.
+14 Jahre alt und komme aus Deutschland.
 
 Meine Sprachen und Kenntnisse:
 
