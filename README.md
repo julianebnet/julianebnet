@@ -1,6 +1,4 @@
-### 💻 Servus, ich bin Julian 👋
-
-15 Jahre alt und komme aus Deutschland.
+### 💻 Servus 👋
 
 Meine Sprachen und Kenntnisse:
 
